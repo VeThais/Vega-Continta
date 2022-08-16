@@ -11,4 +11,4 @@
 
 ### Nuestro público objetivo son hombres y mujeres de 25 a 45 años, de habla hispana (nuestros diseños por el momento son en Español), de cualquier parte del mundo. 
 
-#### El logo es simple, centrado en un recuadro, la **fuente** utilizada para el nombre es **Apricots**. Los colores principales son una derivación pastel de Amarillo, Cyan y Magenta. Siendo '#ffeb5b' '#80d3ff' y '#ec9ec0' respectivamente. 
+### El logo es simple, centrado en un recuadro, la **fuente** utilizada para el nombre es **Apricots**. Los colores principales son una derivación pastel de Amarillo, Cyan y Magenta. Siendo '#ffeb5b' '#80d3ff' y '#ec9ec0' respectivamente. 
