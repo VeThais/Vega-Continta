@@ -7,7 +7,7 @@
 
 ### Realizamos los diseños que necesites, los descargás y los imprimís en tu gráfica de confianza (o te damos tips para hacerlo en casa, si tenés tu propia impresora). 
 
-### **Productos** Tenemos material descargable de láminas decorativas, vinilos, candy bar completo para tus eventos... Podrás encontrar de todo! Hacé volar tu imaginación y dale a tu hogar o evento un toque distintivo. 
+### **Productos:** Tenemos material descargable de láminas decorativas, vinilos, candy bar completo para tus eventos... Podrás encontrar de todo! Hacé volar tu imaginación y dale a tu hogar o evento un toque distintivo. 
 
 ### Nuestro público objetivo son hombres y mujeres de 25 a 45 años, de habla hispana (nuestros diseños por el momento son en Español), de cualquier parte del mundo. 
 
